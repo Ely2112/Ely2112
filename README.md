@@ -1,5 +1,5 @@
 - 👋 Hi, I’m POON Kwan Hei Anson, @Ely2112
-- 👀 I’m interested in artificial intelligence
+- 👀 I’m interested in Artificial Intelligence
 - 🌱 I’m currently an undergraduate student of HKUST
 - 📫 How to reach me: Email: poonkwanheianson@gmail.com
 
